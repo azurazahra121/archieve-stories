@@ -3,22 +3,13 @@ const stories = {
     'story-1': {
         title: 'The Quiet After Midnight',
         rating: 'General',
-        published: '2026-09-10',
-        tags: ['#Alternate Universe', '#Slice of Life'],
+        published: '2026-09-18',
+        tags: ['#Oneshot','#Alternate Universe', '#Slice of Life'],
         chapterFiles: [
-            'stories/story-1/ch1.md',
-            'stories/story-1/ch2.md'
+            'stories/story-1/ch1.md'
         ]
     },
-    'story-2': {
-        title: 'Echoes from Terminal 9',
-        rating: 'Teen',
-        published: '2026-08-28',
-        tags: ['#Sci-Fi'],
-        chapterFiles: [
-            'stories/story-2/ch1.md'
-        ]
-    }
+    
 };
 
 // Helper: Calculate word count from plain text
