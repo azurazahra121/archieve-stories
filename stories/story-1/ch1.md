@@ -36,17 +36,15 @@ She turns to face him. “…technically yes, you're the best coworker I’ve ev
 
 “Is that enough to make you like me?”
 
-She simply looks at him, not revealing how much this question affects her. “Yes, as my coworker.” She admits and adds, 
+She simply looks at him, not revealing how much this question affects her. “Yes, as my coworker.” She admits and adds, “Besides, I never thought you'd count on me more than that.”
 
-“Besides, I never thought you'd count on me more than that.”
-
-He frowns. There's no way to tell her that from his actions. “I've depended on you, truly.”
+He frowns. His actions scream so clearly that he has loved her for years. “I do, truly.”
 
 She moves her chair to face him. “You have a girlfriend, don't you?”
 
 He holds her gaze with a serious expression. “Who said that?”
 
-She clicks her tongue. “It's me,” she mutters, crossing her arms on her chest. “I saw your social media—’ You posted 2 cups of coffee last week.”
+She clicks her tongue. “That's me,” she mutters, crossing her arms on her chest. “I saw your social media— You posted 2 cups of coffee last week.”
 
 He smiles, amused by her reaction to his post. “They're ours. We brought them from the new cafe near our office, remember?”
 
@@ -60,6 +58,6 @@ He leans back, the chair squeaking. “It feels unreal,” he realizes, but he k
 
 He knows it sounds generous, but he wants her to see how deep his feelings are. Even if it's just revisiting the place that caused their misunderstandings.
 
-She clears her throat. “Since it's a treat, I don't mind,” she says as coolly as possible. She loves seeing his expression soften right now. Her eyes also catch his ears turning red as he keeps looking down.
+She clears her throat. “Since it's a treat, I don't mind,” she says as coolly as possible. She loves seeing his expression soften right now. Her eyes also catch his ears turning red as he looks down. His adorable body language is a stark contrast to his muscular build. 
 
 <em>He looks shy.</em>
