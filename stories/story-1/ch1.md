@@ -8,7 +8,7 @@ She turns her gaze to the window, where the skyscrapers look majestic and quiet.
 
 They stay silent for almost an hour.
 
-“I used to dream about what it would be like to work in that building when I was a kid. I thought everyone there was rich and had perfect lives,” she murmurs.
+“I used to dream about what it would be like to work in the skyscraper when I was a kid. I thought everyone there was rich and had perfect lives,” she murmurs.
 
 “And what does it feel like?” he asks as he saves his work. Finished. Nothing keeps him here now, but he still wants to hear her answer.
 
@@ -24,7 +24,7 @@ She nods. “I think you could be a surgeon with your personality and skills.”
 
 “I’d do my best as a surgeon if I could, and I’d make you happy,” he says sincerely.
 
-“I'm already happy, even though you’re not a surgeon,” she quickly replies; for a moment, her gaze drifts. “…you know, if you were a surgeon, I wonder if we’d even meet and chat in the middle of the night at the office.”
+“I'm already happy, even though you’re not a surgeon,” she quickly replies; for a moment, her gaze drifts. “…you know, if you were a surgeon, I wonder if we’d even meet and chat at midnight like this.”
 
 He stays quiet for a few moments. “Does our meeting mean anything to you?”
 
