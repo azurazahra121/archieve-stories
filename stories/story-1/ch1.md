@@ -52,7 +52,7 @@ She shuffles her chair back in shock. “Eh?! So I was jealous of myself?”
 
 He can't help but smile again, this time reaching his eyes. “It's okay,” he assures her, moving his chair closer. “I’d never let something like that happen. It's my fault for not telling you. I’m sorry.”
 
-Her eyes blink rapidly. “No, it’s okay! We can be wrong. I'm sorry for misunderstanding, too.”
+Her eyes widen. “No, it’s okay! We can be wrong. I'm sorry for misunderstanding, too.”
 
 He leans back, the chair squeaking. “It feels unreal,” he realizes, but he keeps looking at her flushed face. He’s not someone who would chase someone to their limits just to satisfy his pride. His fingers tap the armrests as he asks, “Do you want me to treat you to coffee at the same place and enjoy the morning in the city park?”
 
