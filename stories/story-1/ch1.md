@@ -1,4 +1,4 @@
-He glances at her, watching how her eyes remain glued to the monitor. The dim light shines on her exhausted figure beside him. He exhales deeply. He hates working overtime or staying late at the office, but here he is—sitting in his chair, preparing for tomorrow’s work.
+He glanced at her, while her eyes remain glued to the monitor. The dim light shines on her exhausted figure beside him. He exhales deeply. He hates working overtime or staying late at the office, but here he is—sitting in his chair, preparing for tomorrow’s work.
 
 “It's rare to see you stay until these hours, Kento,” she says as her fingers keep typing updates to the financial model.
 
